@@ -147,7 +147,6 @@ De acordo com os critérios acima, iremos avaliar seu teste para avançarmos par
 
 ## Dividas entre em contato
 
-geovanefeitosacavalcante@gmail.com,
-vfranca477@gmail.com,
-hugo.bandeira@hotmail.com
+jhowfigueredo2@gmail.com
+vfranca477@gmail.com
 
